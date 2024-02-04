@@ -1,0 +1,1 @@
+https://www.freelancer.com/users/l.php?url=https:%2F%2Fwww.figma.com%2Ffile%2FJpgvgcd6nY8XBceWIAJ3pM%2FEmail-template%3Ftype%3Ddesign%26node-id%3D2002-216%26mode%3Ddesign&sig=b99e970db2c188aacb8def3a20bd82e563c92623b6985168ec5047c6fb951dc0
